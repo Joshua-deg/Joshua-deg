@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Joshua-deg
+- 👀 I’m interested in design and cinema
+- 🌱 I’m currently learning schedule
+- 💞️ I’m looking to collaborate on projects with intention by make the world best
+- 📫 How to reach me send me mensage on instagram *josuegpxavier*
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i dont know nothing of art but love see people doe and for that im follow the path of DEG
